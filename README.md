@@ -1,1 +1,1 @@
-My favorite team is Aesenal.
+My favorite team is Arsenal.
